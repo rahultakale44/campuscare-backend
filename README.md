@@ -204,7 +204,12 @@ Rahul Takale
 B.Tech Computer Science Engineering
 MIT Art, Design & Technology University, Pune
 
-LinkedIn: [www.linkedin.com/in/rahul-takale-798714272](http://www.linkedin.com/in/rahul-takale-798714272)
+LinkedIn: [www.linkedin.com/in/rahul-takale-798714272](http://www.linkedin.com/in/rahultakale44/<img width="792" height="504" alt="1" src="https://github.com/user-attachments/assets/d89a9153-64e8-4266-a192-8dda62900727" />
+<img width="1165" height="754" alt="20" src="https://github.com/user-attachments/assets/6ac848d7-81b1-4303-9745-c244f79127d2" />
+<img width="1168" height="748" alt="3" src="https://github.com/user-attachments/assets/8a5c0e89-d860-4e85-9c5c-1aa0bb5d5b8e" />
+<img width="1184" height="760" alt="4" src="https://github.com/user-attachments/assets/c31aa12b-647c-4e9a-966b-c1383c8e0cc6" />
+<img width="1172" height="748" alt="5" src="https://github.com/user-attachments/assets/cbb7b0bb-7fb7-473f-8350-d10ce1933b19" />
+)
 
 GitHub: github.com/rahultakale44
 
